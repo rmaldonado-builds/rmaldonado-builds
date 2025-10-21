@@ -1,4 +1,4 @@
-![Banner profesional](A_2D_digital_vector_illustration_displays_a_collec.png)
+![Banner profesional](Banner v2.png)
 
 # 👋 Hola, soy Ronald Maldonado
 
